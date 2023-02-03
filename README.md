@@ -30,16 +30,18 @@ Runs in the command line
 easy to use
 
 
-3 hour a day customer support!
+3 hours a day customer support!
 
 
 Extra Notes
 -----------
 Thank you so much for downloading my program!
 
+To contribute, 
 
-You can also donate to North Point Studios.
+
+You can donate to North Point Studios, or 
 
 
-Another way you can help is by helping with development, marketing, and advertising.
+you can help by helping with development, marketing, or advertising.
 
