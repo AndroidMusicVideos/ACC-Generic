@@ -30,7 +30,7 @@ Runs in the command line
 easy to use
 
 
-3 hours a day customer support!
+3 hours a day customer support, via email.
 
 
 Extra Notes
